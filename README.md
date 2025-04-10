@@ -32,6 +32,10 @@
 
 You can directly generate a new quote by running ```app.py``` from within the ```source``` folder, or fork this repository and have the workflow automatically do it for you. 
 
+For workflow automation to function on your repository, you must create an ```actions secret``` named ```PAT``` with the value of a personal access token that has write permissions on the repository.
+
+## Configuration
+
 There is a ```config.yml``` file that contains the URL from where these quotes are generated, you are able to change this however, please note if the json return differs from the original source, then the project's codebase will need to be updated to ensure usability.
 
 ## Contributing
