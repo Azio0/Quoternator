@@ -1,5 +1,5 @@
-Last Updated: 2025-04-10 00:24:14
+Last Updated: 2025-04-11 00:24:56
 
-Love Matches, So Called, Have Illusion For Their Father And Need For Their Mother.
+Your heart knows the way. Run in that direction.
 
-By Friedrich Nietzsche
+By Rumi
