@@ -1,5 +1,5 @@
-Last Updated: 2025-04-11 00:24:56
+Last Updated: 2025-04-12 00:24:04
 
-Your heart knows the way. Run in that direction.
+I Feel Much Freer Now That I Am Certain The Pope Is The Antichrist.
 
-By Rumi
+By Martin Luther
