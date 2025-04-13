@@ -1,5 +1,5 @@
-Last Updated: 2025-04-12 00:24:04
+Last Updated: 2025-04-13 03:05:46
 
-I Feel Much Freer Now That I Am Certain The Pope Is The Antichrist.
+I went inside my heart to see how it was. Something there makes me hear the whole world weeping.
 
-By Martin Luther
+By Rumi
