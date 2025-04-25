@@ -1,5 +1,5 @@
-Last Updated: 2025-04-24 01:41:42
+Last Updated: 2025-04-25 00:25:11
 
-To Be A Christian Without Prayer Is No More Possible Than To Be Alive Without Breathing.
+At Times One Remains Faithful To A Cause Only Because Its Opponents Do Not Cease To Be Insipid.
 
-By Martin Luther King, Jr.
+By Friedrich Nietzsche
