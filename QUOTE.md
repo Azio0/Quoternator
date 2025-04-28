@@ -1,5 +1,5 @@
-Last Updated: 2025-04-27 00:27:13
+Last Updated: 2025-04-28 00:26:25
 
-Music Is The Art Of The Prophets And The Gift Of God.
+The one who has no control over his desires has no control over his mind.
 
-By Martin Luther
+By Ali ibn Abi Talib (R.A)
