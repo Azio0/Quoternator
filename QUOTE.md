@@ -1,5 +1,5 @@
-Last Updated: 2025-04-29 00:25:20
+Last Updated: 2025-04-30 00:25:10
 
-Monsters Are Real, And Ghosts Are Real Too. They Live Inside Us, And Sometimes, They Win.
+People Must Learn To Hate And If They Can Learn To Hate, They Can Be Taught To Love.
 
-By Stephen King
+By Nelson Mandela
