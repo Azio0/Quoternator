@@ -1,5 +1,5 @@
-Last Updated: 2025-04-30 00:25:10
+Last Updated: 2025-05-01 00:28:22
 
-People Must Learn To Hate And If They Can Learn To Hate, They Can Be Taught To Love.
+The desire to know your own soul will end all other desires.
 
-By Nelson Mandela
+By Rumi
