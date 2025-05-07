@@ -1,5 +1,5 @@
-Last Updated: 2025-05-06 00:25:37
+Last Updated: 2025-05-07 00:25:47
 
-This being human is a guest house. Every morning a new arrival. Welcome and entertain them all!
+I will be patient till even patience tires of my patience.
 
-By Rumi
+By Ali ibn Abi Talib (R.A)
