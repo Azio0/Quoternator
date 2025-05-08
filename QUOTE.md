@@ -1,5 +1,5 @@
-Last Updated: 2025-05-07 00:25:47
+Last Updated: 2025-05-08 00:25:55
 
-I will be patient till even patience tires of my patience.
+One best book is equal to hundred good friends but one good friend is equal to a library.
 
-By Ali ibn Abi Talib (R.A)
+By Abdul Kalam
