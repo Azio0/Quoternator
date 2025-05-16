@@ -1,5 +1,5 @@
-Last Updated: 2025-05-15 00:25:03
+Last Updated: 2025-05-16 00:26:16
 
-There cannot be self-restraint in the absence of desire: when there is no adversary, what avails thy courage? Hark, do not castrate thyself, do not become a monk: chastity depends on the existence of lust.
+Don't read success stories, you will only get a message. Read failure stories, you will get some ideas to get success.
 
-By Rumi
+By Abdul Kalam
