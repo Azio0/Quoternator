@@ -1,5 +1,5 @@
-Last Updated: 2025-05-17 00:25:07
+Last Updated: 2025-05-18 00:28:12
 
-I'm too fast. I'm too smart. I'm too pretty.
+We Enjoy The Process Far More Than The Proceeds.
 
-By Muhammad Ali
+By Warren Buffett
