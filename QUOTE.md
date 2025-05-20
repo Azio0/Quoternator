@@ -1,5 +1,5 @@
-Last Updated: 2025-05-19 00:27:39
+Last Updated: 2025-05-20 00:26:41
 
-Faith Is Taking The First Step Even When You Don'T See The Whole Staircase.
+As long as you are pure of heart, you speak the truth.
 
-By Martin Luther King, Jr.
+By Umar ibn Al-Khattāb (R.A)
