@@ -1,5 +1,5 @@
-Last Updated: 2025-05-20 00:26:41
+Last Updated: 2025-05-21 00:26:24
 
-As long as you are pure of heart, you speak the truth.
+Wherever You Go, Go With All Your Heart.
 
-By Umar ibn Al-Khattāb (R.A)
+By Confucius
