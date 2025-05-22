@@ -1,5 +1,5 @@
-Last Updated: 2025-05-21 00:26:24
+Last Updated: 2025-05-22 00:25:55
 
-Wherever You Go, Go With All Your Heart.
+What is politics? Political system is equal to development politics plus political politics.
 
-By Confucius
+By Abdul Kalam
