@@ -1,5 +1,5 @@
-Last Updated: 2025-05-22 00:25:55
+Last Updated: 2025-05-23 00:26:18
 
-What is politics? Political system is equal to development politics plus political politics.
+The People Themselves, And Not Their Servants, Can Safely Reverse Their Own Deliberate Decisions.
 
-By Abdul Kalam
+By Abraham Lincoln
