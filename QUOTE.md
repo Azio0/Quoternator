@@ -1,5 +1,5 @@
-Last Updated: 2025-05-25 00:28:57
+Last Updated: 2025-05-26 00:26:52
 
-The bird is powered by its own life and by its motivation.
+We are the mirror - As well as the face in it.
 
-By Abdul Kalam
+By Rumi
