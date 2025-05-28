@@ -1,5 +1,5 @@
-Last Updated: 2025-05-27 00:25:34
+Last Updated: 2025-05-28 00:26:15
 
-Wisdom is like the rain. Its source is limitless, but it comes down according to the season.
+A man's behavior is the index of the man, and his discourse is the index of his understanding.
 
-By Rumi
+By Ali ibn Abi Talib (R.A)
