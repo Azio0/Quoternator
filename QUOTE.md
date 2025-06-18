@@ -1,5 +1,5 @@
-Last Updated: 2025-06-17 00:26:34
+Last Updated: 2025-06-18 00:26:29
 
-Wars Are Caused By Undefended Wealth.
+A man's worth depends upon the nobility of his aspirations.
 
-By Ernest Hemingway
+By Ali ibn Abi Talib (R.A)
