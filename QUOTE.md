@@ -1,5 +1,5 @@
-Last Updated: 2025-06-21 00:26:18
+Last Updated: 2025-06-22 00:29:34
 
-I Have Nothing To Offer But Blood, Toil, Tears And Sweat.
+I know where I'm going and I know the truth, and I don't have to be what you want me to be. I'm free to be what I want.
 
-By Winston Churchill
+By Muhammad Ali
