@@ -1,5 +1,5 @@
-Last Updated: 2025-06-24 00:26:39
+Last Updated: 2025-06-25 00:26:59
 
-It'S Better To Be A Lion For A Day Than A Sheep All Your Life.
+You Were Born To Win, But To Be A Winner, You Must Plan To Win, Prepare To Win, And Expect To Win.
 
-By Elizabeth Kenny
+By Zig Ziglar
