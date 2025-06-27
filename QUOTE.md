@@ -1,5 +1,5 @@
-Last Updated: 2025-06-26 00:26:36
+Last Updated: 2025-06-27 00:26:59
 
-I Know Of Only One Duty, And That Is To Love.
+He who sleeps without offering the night prayer, may he never enjoy a sound sleep.
 
-By Albert Camus
+By Umar ibn Al-Khattāb (R.A)
