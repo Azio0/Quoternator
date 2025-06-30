@@ -1,5 +1,5 @@
-Last Updated: 2025-06-29 00:30:15
+Last Updated: 2025-06-30 00:29:06
 
-Loving one another is half of wisdom.
+To fight against the infidels is Jihad; but to fight against your evil self is greater Jihad.
 
-By Ali ibn Abi Talib (R.A)
+By Abu Bakr (R.A)
