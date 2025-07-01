@@ -1,5 +1,5 @@
-Last Updated: 2025-06-30 00:29:06
+Last Updated: 2025-07-01 00:30:46
 
-To fight against the infidels is Jihad; but to fight against your evil self is greater Jihad.
+The relation of patience to iman is like the relation of the head to the body. If the head is chopped off, the body becomes useless. Then he raised his voice and said: Certainly, the one who has no patience has no iman, and patience is like a riding-beast that nevers gets tired.
 
-By Abu Bakr (R.A)
+By Ali ibn Abi Talib (R.A)
