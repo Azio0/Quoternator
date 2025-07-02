@@ -1,5 +1,5 @@
-Last Updated: 2025-07-01 00:30:46
+Last Updated: 2025-07-02 00:26:33
 
-The relation of patience to iman is like the relation of the head to the body. If the head is chopped off, the body becomes useless. Then he raised his voice and said: Certainly, the one who has no patience has no iman, and patience is like a riding-beast that nevers gets tired.
+My Father Always Told Me That All Businessmen Were Sons Of Bitches, But I Never Believed It Till Now.
 
-By Ali ibn Abi Talib (R.A)
+By John F. Kennedy
