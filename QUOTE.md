@@ -1,5 +1,5 @@
-Last Updated: 2025-07-05 00:25:37
+Last Updated: 2025-07-06 00:29:52
 
-Gliders, Sail Planes, They'Re Wonderful Flying Machines. It'S The Closest You Can Come To Being A Bird.
+Seek the wisdom that will untie your knot. Seek the path that demands your whole being.
 
-By Neil Armstrong
+By Rumi
