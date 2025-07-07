@@ -1,5 +1,5 @@
-Last Updated: 2025-07-06 00:29:52
+Last Updated: 2025-07-07 00:29:13
 
-Seek the wisdom that will untie your knot. Seek the path that demands your whole being.
+The true believer is rewarded in every thing, even in affliction.
 
-By Rumi
+By Abu Bakr (R.A)
