@@ -1,5 +1,5 @@
-Last Updated: 2025-07-09 00:27:47
+Last Updated: 2025-07-10 00:27:13
 
-Lord, Lord, How Subject We Old Men Are To This Vice Of Lying!
+Inside you there's an artist you don't know about.
 
-By William Shakespeare
+By Rumi
