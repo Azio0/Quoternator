@@ -1,5 +1,5 @@
-Last Updated: 2025-07-17 00:28:21
+Last Updated: 2025-07-18 00:27:35
 
-Love Matches, So Called, Have Illusion For Their Father And Need For Their Mother.
+I fear the day when the Kuffar are proud of their falsehood, and the Muslims are shy of their faith.
 
-By Friedrich Nietzsche
+By Umar ibn Al-Khattāb (R.A)
