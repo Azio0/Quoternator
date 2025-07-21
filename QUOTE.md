@@ -1,5 +1,5 @@
-Last Updated: 2025-07-20 00:31:19
+Last Updated: 2025-07-21 00:30:25
 
-I Used To Think The Worst Thing In Life Was To End Up All Alone. It'S Not. The Worst Thing In Life Is To End Up With People Who Make You Feel All Alone.
+If You Can'T Fly Then Run, If You Can'T Run Then Walk, If You Can'T Walk Then Crawl, But Whatever You Do You Have To Keep Moving Forward.
 
-By Robin Williams
+By Martin Luther King  Jr.
