@@ -1,5 +1,5 @@
-Last Updated: 2025-07-25 00:28:35
+Last Updated: 2025-07-26 00:27:17
 
-In The Depth Of Winter I Finally Learned That There Was In Me An Invincible Summer.
+Nothing In Life Is To Be Feared, It Is Only To Be Understood. Now Is The Time To Understand More, So That We May Fear Less.
 
-By Albert Camus
+By Marie Curie
