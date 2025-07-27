@@ -1,5 +1,5 @@
-Last Updated: 2025-07-26 00:27:17
+Last Updated: 2025-07-27 00:31:14
 
-Nothing In Life Is To Be Feared, It Is Only To Be Understood. Now Is The Time To Understand More, So That We May Fear Less.
+Of all the follies the greatest is to love the world.
 
-By Marie Curie
+By Ali ibn Abi Talib (R.A)
