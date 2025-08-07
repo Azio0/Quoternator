@@ -1,5 +1,5 @@
-Last Updated: 2025-08-06 00:29:05
+Last Updated: 2025-08-07 00:28:56
 
-A Casual Stroll Through The Lunatic Asylum Shows That Faith Does Not Prove Anything.
+I'll tell you how I'd like to be remembered: As a black man who won the heavyweight title - Who has humorous and who never looked down on those who looked up to him - A man who stood for freedom, justice and equality - And I wouldn't even mind if folks forgot how pretty I was.
 
-By Friedrich Nietzsche
+By Muhammad Ali
