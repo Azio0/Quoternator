@@ -1,5 +1,5 @@
-Last Updated: 2025-08-08 00:28:37
+Last Updated: 2025-08-09 00:26:24
 
-The Essence Of All Beautiful Art, All Great Art, Is Gratitude.
+He who busies himself with things other than improvement of his own self becomes perplexed in darkness and entangled in ruin. His evil spirits immerse him deep in vices and make his bad actions seem handsome.
 
-By Friedrich Nietzsche
+By Ali ibn Abi Talib (R.A)
