@@ -1,5 +1,5 @@
-Last Updated: 2025-08-09 00:26:24
+Last Updated: 2025-08-10 00:31:03
 
-He who busies himself with things other than improvement of his own self becomes perplexed in darkness and entangled in ruin. His evil spirits immerse him deep in vices and make his bad actions seem handsome.
+Derivatives Are Financial Weapons Of Mass Destruction.
 
-By Ali ibn Abi Talib (R.A)
+By Warren Buffett
