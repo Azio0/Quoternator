@@ -1,5 +1,5 @@
-Last Updated: 2025-08-12 00:26:28
+Last Updated: 2025-08-13 00:27:13
 
-Change Your Opinions, Keep To Your Principles; Change Your Leaves, Keep Intact Your Roots.
+The Roots Of Education Are Bitter, But The Fruit Is Sweet.
 
-By Victor Hugo
+By Aristotle
