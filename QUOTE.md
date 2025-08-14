@@ -1,5 +1,5 @@
-Last Updated: 2025-08-13 00:27:13
+Last Updated: 2025-08-14 00:26:49
 
-The Roots Of Education Are Bitter, But The Fruit Is Sweet.
+You cannot change your future, but you can change your habits, and surely your habits will change your future.
 
-By Aristotle
+By Abdul Kalam
