@@ -1,5 +1,5 @@
-Last Updated: 2025-08-15 00:27:43
+Last Updated: 2025-08-16 00:25:41
 
-Words Are Only Painted Fire; A Look Is The Fire Itself.
+I am not this hair. I am not this skin. I am the soul that lives within.
 
-By Mark Twain
+By Rumi
