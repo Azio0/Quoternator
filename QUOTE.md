@@ -1,5 +1,5 @@
-Last Updated: 2025-08-16 00:25:41
+Last Updated: 2025-08-17 00:29:24
 
-I am not this hair. I am not this skin. I am the soul that lives within.
+Israel, As The Jewish State, Must Disappear From The Map.
 
-By Rumi
+By Ahmed Yassin
