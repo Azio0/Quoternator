@@ -1,5 +1,5 @@
-Last Updated: 2025-08-17 00:29:24
+Last Updated: 2025-08-18 00:29:22
 
-Israel, As The Jewish State, Must Disappear From The Map.
+Allah's the Arabic term for God. Stand up for God, fight for God, work for God and do the right thing, and go the right way, things will end up in your corner.
 
-By Ahmed Yassin
+By Muhammad Ali
