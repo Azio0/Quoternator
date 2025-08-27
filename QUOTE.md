@@ -1,5 +1,5 @@
-Last Updated: 2025-08-26 00:25:41
+Last Updated: 2025-08-27 00:25:21
 
-Safety lies in silence. It is easier to rectify what you miss by silence, than to secure what you lose by speaking.
+Those Who Make Peaceful Revolution Impossible Will Make Violent Revolution Inevitable.
 
-By Ali ibn Abi Talib (R.A)
+By John F. Kennedy
