@@ -1,5 +1,5 @@
-Last Updated: 2025-08-30 00:23:52
+Last Updated: 2025-08-31 00:27:51
 
-Never, Never, Never Give Up.
+Creativity is the key to success in the future, and primary education is where teachers can bring creativity in children at that level.
 
-By Winston Churchill
+By Abdul Kalam
