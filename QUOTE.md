@@ -1,5 +1,5 @@
-Last Updated: 2025-09-01 00:31:04
+Last Updated: 2025-09-02 00:25:18
 
-Let Us Live So That When We Come To Die Even The Undertaker Will Be Sorry.
+Goodbyes are only for those who love with their eyes. Because for those who love with heart and soul there is no such thing as separation.
 
-By Mark Twain
+By Rumi
