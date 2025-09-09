@@ -1,5 +1,5 @@
-Last Updated: 2025-09-08 00:26:17
+Last Updated: 2025-09-09 00:25:02
 
-The sweetness of life lies in dispensing with formalities.
+We have not invaded anyone. We have not conquered anyone. We have not grabbed their land, their culture, their history and tried to enforce our way of life on them.
 
-By Muhammad Ali
+By Abdul Kalam
