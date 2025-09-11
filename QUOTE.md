@@ -1,5 +1,5 @@
-Last Updated: 2025-09-10 00:23:51
+Last Updated: 2025-09-11 00:24:44
 
-Only Buy Something That You'D Be Perfectly Happy To Hold If The Market Shut Down For 10 Years.
+To the people that have said I'm too small, I'm not fast enough, I don't have what it takes, I'm not strong enough. THANK YOU.
 
-By Warren Buffett
+By Muhammad Ali
