@@ -1,5 +1,5 @@
-Last Updated: 2025-09-18 01:27:39
+Last Updated: 2025-09-19 01:38:16
 
-People Ask The Difference Between A Leader And A Boss. The Leader Leads, And The Boss Drives.
+Fear Allah, for He alone lives; all other things are liable to perish.
 
-By Theodore Roosevelt
+By Umar ibn Al-Khattāb (R.A)
