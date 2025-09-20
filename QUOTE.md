@@ -1,5 +1,5 @@
-Last Updated: 2025-09-19 01:38:16
+Last Updated: 2025-09-20 00:23:31
 
-Fear Allah, for He alone lives; all other things are liable to perish.
+If an ignorant person is attracted by the things of the world, that is bad. But if a learned person is thus attracted, it is worse.
 
-By Umar ibn Al-Khattāb (R.A)
+By Abu Bakr (R.A)
