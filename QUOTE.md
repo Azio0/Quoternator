@@ -1,5 +1,5 @@
-Last Updated: 2025-09-20 00:23:31
+Last Updated: 2025-09-21 00:27:25
 
-If an ignorant person is attracted by the things of the world, that is bad. But if a learned person is thus attracted, it is worse.
+Work Consists Of Whatever A Body Is Obliged To Do. Play Consists Of Whatever A Body Is Not Obliged To Do.
 
-By Abu Bakr (R.A)
+By Mark Twain
