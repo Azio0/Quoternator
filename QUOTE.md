@@ -1,5 +1,5 @@
-Last Updated: 2025-09-23 00:24:37
+Last Updated: 2025-09-24 00:24:58
 
-There is no harm in patience, and no profit in lamentation. Death is easier to bear (than) that which precedes it, and more severe than that which comes after it. Remember the death of the Apostle of God, and your sorrow will be lessened.
+Perfecting one's intellect causes one to speak less, and those words spoken will be adorned with wisdom.
 
-By Abu Bakr (R.A)
+By Ali ibn Abi Talib (R.A)
