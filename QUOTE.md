@@ -1,5 +1,5 @@
-Last Updated: 2025-09-24 00:24:58
+Last Updated: 2025-09-25 00:24:39
 
-Perfecting one's intellect causes one to speak less, and those words spoken will be adorned with wisdom.
+When the world pushes you to your knees, you're in the perfect position to pray.
 
-By Ali ibn Abi Talib (R.A)
+By Rumi
