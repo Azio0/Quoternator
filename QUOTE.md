@@ -1,5 +1,5 @@
-Last Updated: 2025-09-25 00:24:39
+Last Updated: 2025-09-26 00:24:18
 
-When the world pushes you to your knees, you're in the perfect position to pray.
+May Allah bless the man who says less and does more.
 
-By Rumi
+By Umar ibn Al-Khattāb (R.A)
